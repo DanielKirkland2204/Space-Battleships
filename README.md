@@ -10,4 +10,4 @@ The background image was from a royalty free video:
 Space Travel Royalty Free Footage by footageisland: https://www.youtube.com/watch?v=Kg4CRIDXkGg
 Image: https://i.ytimg.com/vi/Kg4CRIDXkGg/maxresdefault.jpg
 
-Music was created by myself using Music Maker 2015
+Music was created by myself using Music Maker 2015.
